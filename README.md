@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @afief dzakie na'imy
+- 👋 Hi, I’m Afief Dzakie Na'imy
 - 👀 I’m interested in in technology
 - 🌱 I’m currently learning programming
 - 📫 Contact me on Instagram @afief_dzakie22
